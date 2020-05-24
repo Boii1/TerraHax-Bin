@@ -1,3 +1,3 @@
 # TerraHax-Bin
 
-http://www.mediafire.com/folder/dx479yjagsclt5w/shared
+http://www.mediafire.com/folder/svarihi1fnneu/TerraHax_v1.0.0RC3
